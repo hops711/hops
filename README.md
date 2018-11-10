@@ -1,2 +1,3 @@
 # hops
-My first repository
+Hi everyone!!!
+If you read this, then I did everything right)🤣)
